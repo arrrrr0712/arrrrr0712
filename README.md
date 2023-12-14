@@ -1,5 +1,7 @@
 ### Hi there 👋
-hi
+大家好!
+我是賴亭妤
+哈哈哈哈哈哈哈哈哈哈哈
 <!--
 **arrrrr0712/arrrrr0712** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
