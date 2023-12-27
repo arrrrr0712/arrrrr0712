@@ -11,7 +11,34 @@
 
 
 
-哈哈哈哈哈哈哈哈哈哈哈
+哈哈哈哈哈哈哈哈哈哈哈-賴大師機關槍集🔫
+
+
+
+
+一個輔爛仁的人
+
+
+
+
+希望我這學期每科都過
+
+
+
+
+然後都很高分
+
+
+
+━━━━━●─────── 7:12
+
+
+
+⇆ ㅤㅤㅤ◁ ㅤㅤ❚❚ ㅤㅤ▷ ㅤㅤㅤ↻
+
+
+
+最近很愛的音樂：一直都在
 <!--
 **arrrrr0712/arrrrr0712** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
