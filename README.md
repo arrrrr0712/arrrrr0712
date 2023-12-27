@@ -30,6 +30,11 @@
 
 
 
+最近很愛的音樂：一直都在
+
+
+
+
 ━━━━━●─────── 7:12
 
 
@@ -38,7 +43,7 @@
 
 
 
-最近很愛的音樂：一直都在
+希望18歲可以過久一點
 <!--
 **arrrrr0712/arrrrr0712** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
